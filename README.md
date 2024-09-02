@@ -1,0 +1,1 @@
+[Descriptive Details Discussion](https://indecisive-amber-0c1.notion.site/peer-to-peer-connection-dcbfd7ef4e5145a0927a7ecbb6cb77ab)
